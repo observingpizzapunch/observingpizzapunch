@@ -1,6 +1,6 @@
 hi im josh(ua) hehim/any mixed 6teen boy
 
-byi: iwc... im shy. ALMOST always offtab or asleep. w2i!
+byi: iwc... im shy. ALMOST always offtab or asleep.. or just busy. w2i!
 
 i like pizzapunch but not exclusive to it.. ok? other ships can int.. ok?
 
