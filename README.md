@@ -1,4 +1,4 @@
-# this is for forsaken only... ok? , artist for art is @superalof 
+# this is for forsaken only... ok?
 
 
 josh(ua) hehim/any mixed 6teen  
