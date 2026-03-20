@@ -1,11 +1,11 @@
-hi im josh(ua) hehim/any mixed 6teen boy
+# this is for forsaken only... ok?
 
-byi: iwc... im shy. ALMOST always offtab or asleep.. or just busy. w2i!
+josh(ua) hehim/any mixed 6teen boy
 
-i like pizzapunch but not exclusive to it.. ok? other ships can int.. ok?
+byi: i use slurs i can reclaim. i prefer if only my age group come up to me (15-16)... but i dont mind others. im shy. i will usually be busy and be offtab. so whisper and i'll probably answer. you can always cuddle/hide ^_^
 
-this is for forsaken only... ok?
+int: forsaken fans 😳 ok but chill i haven't played forsaken in a hot minute.. so don't judge me if i dont know what you're talking about... ok?
 
-dni: under 13, over 19, proshipper/darkshipper, btd/tpof, hazbin hotel/helluva boss. no exceptions srry.
+dni: under 13, over 19, proshipper/darkshipper, btd/tpof, hazbin hotel/helluva boss. no exceptions, sorry.
 
- <img src="https://file.garden/aZ0auV312E5LWDWL/elliot.png" width="350"> ok bye. ok?
+ <img src="https://file.garden/aZ0auV312E5LWDWL/elliot.png" width="350"> ok bai. ill make rentry soon..
