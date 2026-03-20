@@ -1,6 +1,7 @@
-# this is for forsaken only... ok?
+# this is for forsaken only... ok? , artist for art is @superalof 
 
-josh(ua) hehim/any mixed 6teen boy
+
+josh(ua) hehim/any mixed 6teen  
 
 byi: i use slurs i can reclaim. i prefer if only my age group come up to me (15-16)... but i dont mind others. im shy. i will usually be busy and be offtab. so whisper and i'll probably answer. you can always cuddle/hide ^_^
 
