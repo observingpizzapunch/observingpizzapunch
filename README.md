@@ -8,4 +8,6 @@ int: forsaken fans 😳 ok but chill i haven't played forsaken in a hot minute..
 
 dni: under 13, over 19, proshipper/darkshipper, btd/tpof, hazbin hotel/helluva boss. no exceptions, sorry.
 
+other info: i like pizzapunch.. ok? other ships can interact. ok? but i dont roleplay UNLESS we are friends.
+
  <img src="https://file.garden/aZ0auV312E5LWDWL/elliot.png" width="350"> ok bai. ill make rentry soon..
