@@ -6,5 +6,6 @@ i like pizzapunch but not exclusive to it.. ok? other ships can int.. ok?
 
 this is for forsaken only... ok?
 
+dni: under 13, over 19, proshipper/darkshipper, btd/tpof, hazbin hotel/helluva boss. no exceptions srry.
 
 ![](https://i.pinimg.com/736x/2e/e9/7e/2ee97e64c3f0ee6db298664f11678cfb.jpg)
