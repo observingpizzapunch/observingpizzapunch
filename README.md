@@ -1,5 +1,6 @@
 # this is for forsaken only... ok?
 
+the rentry link is simpler/summarized info
 
 josh(ua) hehim/any mixed 6teen  
 
@@ -13,4 +14,4 @@ forsaken stuff..: i like pizzapunch.. ok? other ships can interact. ok? but i do
 
 ok friend me on roblox.. ok? @k1chQ
 
- <img src="https://file.garden/aZ0auV312E5LWDWL/elliot.png" width="350"> ok bai. in process of simpler to read rentry if u dont wanna read allat..
+ <img src="https://file.garden/aZ0auV312E5LWDWL/elliot.png" width="350"> ok bai.
