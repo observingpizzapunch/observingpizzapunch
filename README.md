@@ -1,6 +1,4 @@
-# this is for forsaken only... ok?
-
-the rentry link is simpler/summarized info
+# this is only for forsaken... ok? , rentry is simplified info
 
 josh(ua) hehim/any mixed 6teen  
 
